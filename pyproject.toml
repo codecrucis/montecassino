@@ -1,0 +1,9 @@
+[project]
+name = "montecassino"
+version = "0.1.0"
+
+[tool.uv.workspace]
+members = ["src/armarius"]
+
+[tool.uv]
+dev-dependencies = []
