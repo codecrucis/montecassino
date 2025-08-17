@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Payne McDowell/Commentary on Hebrews.md",
+                "file": "Matthew Henry/Commentary on Acts.md",
                 "mode": "source",
                 "source": true
               },
               "icon": "lucide-file",
-              "title": "Commentary on Hebrews"
+              "title": "Commentary on Acts"
             }
           }
         ]
@@ -142,13 +142,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Payne McDowell/Commentary on Hebrews.md",
+                "file": "Matthew Henry/Commentary on Acts.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Commentary on Hebrews"
+              "title": "Outline of Commentary on Acts"
             }
           }
         ],
@@ -170,7 +170,11 @@
   },
   "active": "ed92a25fffd477c0",
   "lastOpenFiles": [
+    "Bible/Acts.md",
+    "Matthew Henry/Commentary on Acts.md",
+    "Bible/Mark.md",
     "Bible/Hebrews.md",
+    "Payne McDowell/Commentary on Acts.md",
     "Payne McDowell/Commentary on Hebrews.md",
     "Bible/NASB 1995",
     "Matthew Henry/Commentary on Hebrews.md",
