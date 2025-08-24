@@ -131,293 +131,84 @@ good report. Observe,
 			2. How Abraham lived in Canaan, not as heir and proprietor, but as a sojourner only. He did not serve an ejectment, or raise a war against the old inhabitants, to dispossess them, but contented himself to live as a stranger, to bear their unkindnesses patiently, to receive any favours from them thankfully, and to keep his heart fixed upon his home, the heavenly Canaan. 
 			3. He dwelt in tabernacles with Isaac and Jacob, heirs with him of the same promise. He lived there in an ambulatory moving condition, living in a daily readiness for his removal: and thus should we all live in this world. He had good company with him, and they were a great comfort to him in his sojourning state. Abraham lived till Isaac was seventy-five years old, and Jacob fifteen. Isaac and Jacob were heirs of the same promise; for the promise was renewed to Isaac (Gen. xxvi. 3), and to Jacob, Gen. xxviii. 13. All the saints are heirs of the same promise. The promise is made to believers and their children, and to as many as the Lord our God shall call. And it is pleasant to see parents and children sojourning together in this world as heirs of the heavenly inheritance.
 	3. The supports of Abraham's faith (v. 10): He looked for a city that hath foundations, whose builder and maker is God. Observe here, (1.) The description given of heaven: it is a city, a regular society, well established, well defended, and well supplied: it is a city that hath foundations, even the immutable purposes and almighty power of God, the infinite merits and mediation of the Lord Jesus Christ, the promises of an everlasting covenant, its own purity, and the perfection of its inhabitants: and it is a city whose builder and maker is God. He contrived the model; he accordingly made it, and he has laid open a new and living way into it, and prepared it for his people; he puts them into possession of it, prefers them in it, and is himself the substance and felicity of it. (2.) Observe the due regard that Abraham had to this heavenly city: he looked for it; he believed there was such a state; he waited for it, and in the mean time he conversed in it by faith; he had exalted and rejoicing hopes, that in God's time and way he should be brought safely to it. (3.) The influence this had upon his present conversation: it was a support to him under all the trials of his sojourning state, helped him patiently to bear all the inconveniences of it, and actively to discharge all the duties of it, persevering therein unto the end.
-
-V. In the midst of the story of Abraham, the apostle inserts an account of the faith of
+5. In the midst of the story of Abraham, the apostle inserts an account of the faith of
 Sarah. Here observe,
-6. The difficulties of Sarah's faith, which were very great. As, (1.) The prevalency of un-
-belief for a time: she laughed at the promise, as impossible to be made good. (2.) She had
-gone out of the way of her duty through unbelief, in putting Abraham upon taking Hagar
-to his bed, that he might have a posterity. Now this sin of hers would make it more difficult
-for her to act by faith afterwards. (3.) The great improbability of the thing promised, that
-she should be the mother of a child, when she was of sterile constitution naturally, and now
-past the prolific age.
-7. The actings of her faith. Her unbelief is pardoned and forgotten, but her faith prevailed
-and is recorded: She judged him faithful, who had promised, v. 11. She received the promise
-as the promise of God; and, being convinced of that, she truly judged he both could and
-would perform it, how impossible soever it might seem to reason; for the faithfulness of
-God will not suffer him to deceive his people.
-8. The fruits and rewards of her faith. (1.) She received strength to conceive seed. The
-strength of nature, as well as grace, is from God: he can make the barren soul fruitful, as
-well as the barren womb. (2.) She was delivered of a child, a man-child, a child of the promise,
-and comfort of his parents' advanced years, and the hope of future ages. (3.) From them, by
-this son, sprang a numerous progeny of illustrious persons, as the stars of the sky (v. 12)—a
-great, powerful, and renowned nation, above all the rest in the world; and a nation of saints,
-the peculiar church and people of God; and, which was the highest honour and reward of
-all, of these, according to the flesh, the Messiah came, who is over all, God blessed for evermore.
-VI. The apostle proceeds to make mention of the faith of the other patriarchs, Isaac and
-Jacob, and the rest of this happy family, v. 13. Here observe,
-9. The trial of their faith in the imperfection of their present state. They had not received
-the promises, that is, they had not received the things promised, they had not yet been put
-into possession of Canaan, they had not yet seen their numerous issue, they had not seen
-Christ in the flesh. Observe, (1.) Many that are interested in the promises do not presently
-receive the things promised. (2.) One imperfection of the present state of the saints on earth
-is that their happiness lies more in promise and reversion than in actual enjoyment and
-possession. The gospel state is more perfect than the patriarchal, because more of the
-promises are now fulfilled. The heavenly state will be most perfect of all; for there all the
-promises will have their full accomplishment.
-10. The actings of their faith during this imperfect state of things. Though they had not
-received the promises, yet,
-(1.) They saw them afar off. Faith has a clear and a strong eye, and can see promised
-mercies at a great distance. Abraham saw Christ's day, when it was afar off, and rejoiced,
-John viii. 56.
-1660
-Chapter XI
-(2.) They were persuaded of them, that they were true and should be fulfilled. Faith sets
-to its seal that God is true, and thereby settles and satisfies the soul.
-(3.) They embraced them. Their faith was a faith of consent. Faith has a long arm, and
-can lay hold of blessings at a great distance, can make them present, can love them, and rejoice
-in them; and thus antedate the enjoyment of them.
-(4.) They confessed that they were strangers and pilgrims on earth. Observe, [1.] Their
-condition: Strangers and pilgrims. They are strangers as saints, whose home is heaven; they
-are pilgrims as they are travelling towards their home, though often meanly and slowly. [2.]
-Their acknowledgment of this their condition: they were not ashamed to own it; both their
-lips and their lives confessed their present condition. They expected little from the world.
-They cared not to engage much in it. They endeavoured to lay aside every weight, to gird
-up the loins of their minds to mind their way, to keep company and pace with their fellow-
-travellers, looking for difficulties, and bearing them, and longing to get home.
-(5.) Hereby they declared plainly that they sought another country (v. 14), heaven, their
-own country. For their spiritual birth is thence, there are their best relations, and there is
-their inheritance. This country they seek: their designs are for it; their desires are after it;
-their discourse is about it; they diligently endeavour to clear up their title to it, to have their
-temper suited to it, to have their conversation in it, and to come to the enjoyment of it.
-(6.) They gave full proof of their sincerity in making such a confession. For, [1.] They
-were not mindful of that country whence they came, v. 15. They did not hanker after the
-plenty and pleasures of it, nor regret and repent that they had left it; they had no desire to
-return to it. Note, Those that are once effectually and savingly called out of a sinful state
-have no mind to return into it again; they now know better things. [2.] They did not take
-the opportunity that offered itself for their return. They might have had such an opportunity.
-They had time enough to return. They had natural strength to return. They knew the way.
-Those with whom they sojourned would have been willing enough to part with them. Their
-old friends would have been glad to receive them. They had sufficient to bear the charges
-of their journey; and flesh and blood, a corrupt counsellor, would be sometimes suggesting
-to them a return. But they stedfastly adhered to God and duty under all discouragements
-and against all temptations to revolt from him. So should we all do. We shall not want op-
-portunities to revolt from God; but we must show the truth of our faith and profession by
-a steady adherence to him to the end of our days. Their sincerity appeared not only in not
-returning to their former country, but in desiring a better country, that is, a heavenly. Ob-
-serve, First, The heavenly country is better than any upon earth; it is better situated, better
-stored with every thing that is good, better secured from every thing that is evil; the employ-
-ments, the enjoyments, the society, and every thing in it, are better than the best in this
-world. Secondly, All true believers desire this better country. True faith draws forth sincere
-and fervent desires; and the stronger faith is the more fervent those desires will be.
-1661
-Chapter XI
-(7.) They died in the faith of those promises; not only lived by the faith of them, but
-died in the full persuasion that all the promises would be fulfilled to them and theirs, v. 13.
-That faith held out to the last. By faith, when they were dying, they received the atonement;
-they acquiesced in the will of God; they quenched all the fiery darts of the devil; they overcame
-the terrors of death, disarmed it of its sting, and bade a cheerful farewell to this world and
-to all the comforts and crosses of it. These were the actings of their faith. Now observe,
-11. The gracious and great reward of their faith: God is not ashamed to be their God, for
-he hath prepared for them a city, v. 16. Note, (1.) God is the God of all true believers; faith
-gives them an interest in God, and in all his fullness. (2.) He is called their God. He calls
-himself so: I am the God of Abraham, and the God of Isaac, and the God of Jacob; he gives
-them leave to call him so; and he gives them the spirit of adoption, to enable them to cry,
-Abba, Father. (3.) Notwithstanding their meanness by nature, their vileness by sin, and the
-poverty of their outward condition, God is not ashamed to be called their God: such is his
-condescension, such is his love to them; therefore let them never be ashamed of being called
-his people, nor of any of those that are truly so, how much soever despised in the world.
-Above all, let them take care that they be not a shame and reproach to their God, and so
-provoke him to be ashamed of them; but let them act so as to be to him for a name, and for
-a praise, and for a glory. (4.) As the proof of this, God has prepared for them a city, a happi-
-ness suitable to the relation into which he has taken them. For there is nothing in this world
-commensurate to the love of God in being the God of his people; and, if God neither could
-nor would give his people anything better than this world affords, he would be ashamed to
-be called their God. If he takes them into such a relation to himself, he will provide for them
-accordingly. If he takes them into such a relation to himself, he will provide for them accord-
-ingly. If he takes to himself the title of their God, he will fully answer it, and act up to it; and
-he has prepared that for them in heaven which will fully answer this character and relation,
-so that it shall never be said, to the reproach and dishonour of God, that he has adopted a
-people to be his own children and then taken no care to make a suitable provision for them.
-The consideration of this should inflame the affections, enlarge the desires, and excite the
-diligent endeavours, of the people of God after this city that he has prepared for them.
-VII. Now after the apostle has given this account of the faith of others, with Abraham,
+	1. The difficulties of Sarah's faith, which were very great. As, 
+		1. The prevalency of unbelief for a time: she laughed at the promise, as impossible to be made good. 
+		2. She had gone out of the way of her duty through unbelief, in putting Abraham upon taking Hagar to his bed, that he might have a posterity. Now this sin of hers would make it more difficult for her to act by faith afterwards. 
+		3. The great improbability of the thing promised, that she should be the mother of a child, when she was of sterile constitution naturally, and now past the prolific age.
+	2. The actings of her faith. Her unbelief is pardoned and forgotten, but her faith prevailed and is recorded: She judged him faithful, who had promised, v. 11. She received the promise as the promise of God; and, being convinced of that, she truly judged he both could and would perform it, how impossible soever it might seem to reason; for the faithfulness of God will not suffer him to deceive his people. 
+	3. The fruits and rewards of her faith. 
+		1. She received strength to conceive seed. The strength of nature, as well as grace, is from God: he can make the barren soul fruitful, as well as the barren womb. 
+		2. She was delivered of a child, a man-child, a child of the promise, and comfort of his parents' advanced years, and the hope of future ages. 
+		3. From them, by this son, sprang a numerous progeny of illustrious persons, as the stars of the sky (v. 12)—a great, powerful, and renowned nation, above all the rest in the world; and a nation of saints, the peculiar church and people of God; and, which was the highest honour and reward of all, of these, according to the flesh, the Messiah came, who is over all, God blessed for evermore.
+6. The apostle proceeds to make mention of the faith of the other patriarchs, Isaac and Jacob, and the rest of this happy family, v. 13. Here observe, 
+	1. The trial of their faith in the imperfection of their present state. They had not received the promises, that is, they had not received the things promised, they had not yet been put into possession of Canaan, they had not yet seen their numerous issue, they had not seen Christ in the flesh. Observe, 
+		1. Many that are interested in the promises do not presently receive the things promised. 
+		2. One imperfection of the present state of the saints on earth is that their happiness lies more in promise and reversion than in actual enjoyment and possession. The gospel state is more perfect than the patriarchal, because more of the promises are now fulfilled. The heavenly state will be most perfect of all; for there all the promises will have their full accomplishment.
+	2. The actings of their faith during this imperfect state of things. Though they had not received the promises, yet, 
+		1. They saw them afar off. Faith has a clear and a strong eye, and can see promised mercies at a great distance. Abraham saw Christ's day, when it was afar off, and rejoiced, John viii. 56. 
+		2. They were persuaded of them, that they were true and should be fulfilled. Faith sets to its seal that God is true, and thereby settles and satisfies the soul. 
+		3. They embraced them. Their faith was a faith of consent. Faith has a long arm, and can lay hold of blessings at a great distance, can make them present, can love them, and rejoice in them; and thus antedate the enjoyment of them. 
+		4. They confessed that they were strangers and pilgrims on earth. Observe, 
+			1. Their condition: Strangers and pilgrims. They are strangers as saints, whose home is heaven; they are pilgrims as they are travelling towards their home, though often meanly and slowly. 
+			2. Their acknowledgment of this their condition: they were not ashamed to own it; both their lips and their lives confessed their present condition. They expected little from the world. They cared not to engage much in it. They endeavoured to lay aside every weight, to gird up the loins of their minds to mind their way, to keep company and pace with their fellow-travellers, looking for difficulties, and bearing them, and longing to get home.
+		5. Hereby they declared plainly that they sought another country (v. 14), heaven, their own country. For their spiritual birth is thence, there are their best relations, and there is their inheritance. This country they seek: their designs are for it; their desires are after it; their discourse is about it; they diligently endeavour to clear up their title to it, to have their temper suited to it, to have their conversation in it, and to come to the enjoyment of it. 
+		6. They gave full proof of their sincerity in making such a confession. For, 
+			1. They were not mindful of that country whence they came, v. 15. They did not hanker after the plenty and pleasures of it, nor regret and repent that they had left it; they had no desire to return to it. Note, Those that are once effectually and savingly called out of a sinful state have no mind to return into it again; they now know better things. 
+			2. They did not take the opportunity that offered itself for their return. They might have had such an opportunity. They had time enough to return. They had natural strength to return. They knew the way. Those with whom they sojourned would have been willing enough to part with them. Their old friends would have been glad to receive them. They had sufficient to bear the charges of their journey; and flesh and blood, a corrupt counsellor, would be sometimes suggesting to them a return. But they stedfastly adhered to God and duty under all discouragements and against all temptations to revolt from him. So should we all do. We shall not want opportunities to revolt from God; but we must show the truth of our faith and profession by a steady adherence to him to the end of our days. Their sincerity appeared not only in not returning to their former country, but in desiring a better country, that is, a heavenly. Observe, 
+				1. First, The heavenly country is better than any upon earth; it is better situated, better stored with every thing that is good, better secured from every thing that is evil; the employments, the enjoyments, the society, and every thing in it, are better than the best in this world. 
+				2. Secondly, All true believers desire this better country. True faith draws forth sincere and fervent desires; and the stronger faith is the more fervent those desires will be.
+		7. They died in the faith of those promises; not only lived by the faith of them, but died in the full persuasion that all the promises would be fulfilled to them and theirs, v. 13. That faith held out to the last. By faith, when they were dying, they received the atonement; they acquiesced in the will of God; they quenched all the fiery darts of the devil; they overcame the terrors of death, disarmed it of its sting, and bade a cheerful farewell to this world and to all the comforts and crosses of it. These were the actings of their faith. Now observe, 7. The gracious and great reward of their faith: God is not ashamed to be their God, for he hath prepared for them a city, v. 16. Note, 
+			1. God is the God of all true believers; faith gives them an interest in God, and in all his fullness. 
+			2. He is called their God. He calls himself so: I am the God of Abraham, and the God of Isaac, and the God of Jacob; he gives them leave to call him so; and he gives them the spirit of adoption, to enable them to cry, Abba, Father. 
+			3. Notwithstanding their meanness by nature, their vileness by sin, and the poverty of their outward condition, God is not ashamed to be called their God: such is his condescension, such is his love to them; therefore let them never be ashamed of being called his people, nor of any of those that are truly so, how much soever despised in the world. Above all, let them take care that they be not a shame and reproach to their God, and so provoke him to be ashamed of them; but let them act so as to be to him for a name, and for a praise, and for a glory. 
+			4. As the proof of this, God has prepared for them a city, a happiness suitable to the relation into which he has taken them. For there is nothing in this world commensurate to the love of God in being the God of his people; and, if God neither could nor would give his people anything better than this world affords, he would be ashamed to be called their God. If he takes them into such a relation to himself, he will provide for them accordingly. If he takes them into such a relation to himself, he will provide for them accordingly. If he takes to himself the title of their God, he will fully answer it, and act up to it; and he has prepared that for them in heaven which will fully answer this character and relation, so that it shall never be said, to the reproach and dishonour of God, that he has adopted a people to be his own children and then taken no care to make a suitable provision for them. The consideration of this should inflame the affections, enlarge the desires, and excite the diligent endeavours, of the people of God after this city that he has prepared for them. 
+7. Now after the apostle has given this account of the faith of others, with Abraham,
 he returns to him again, and gives us an instance of the greatest trial and act of faith that
 stands upon record, either in the story of the father of the faithful or of any of his spiritual
 seed; and this was his offering up Isaac: By faith Abraham, when he was tried, offered up
 Isaac; and he that had received the promises offered up his only-begotten son, v. 17. In this
-great example observe,
-12. The trial and exercise of Abraham's faith; he was tried indeed. It is said (Gen. xxii. 1),
-God in this tempted Abraham; not to sin, for so God tempteth no man, but only tried his
-faith and obedience to purpose. God had before this tempted or tried the faith of Abraham,
-1662
-Chapter XI
-when he called him away from his country and father's house,—when by a famine he was
-forced out of Canaan into Egypt,—when he was obliged to fight with five kings to rescue
-Lot,—when Sarah was taken from him by Abimelech, and in many other instances. But this
-trial was greater than all; he was commanded to offer up his son Isaac. Read the account of
-it, Gen. xxii. 2. There you will find every word was a trial: "Take now thy son, thine only son
-Isaac, whom thou lovest, and get thee into the land of Moriah, and offer him there for a burnt
-offering upon one of the mountains which I will tell thee of. Take thy son, not one of thy beasts
-or slaves, thy only son by Sarah, Isaac thy laughter, the child of thy joy and delight, whom
-thou lovest as thine own soul; take him away to a distant place, three days' journey, the land
-of Moriah; do not only leave him there, but offer him for a burnt offering." A greater trial
-was never put upon any creature. The apostle here mentions some things that very much
-added to the greatness of this trial. (1.) He was put upon it after he had received the promises,
-that this Isaac should build up his family, that in him his seed should be called (v. 18), and
-that he should be one of the progenitors of the Messiah, and all nations blessed in him; so
-that, in being called to offer up his Isaac, he seemed to be called to destroy and cut off his
-own family, to cancel the promises of God, to prevent the coming of Christ, to destroy the
-whole world, to sacrifice his own soul and his hopes of salvation, and to cut off the church
-of God at one blow: a most terrible trial! (2.) That this Isaac was his only-begotten son by
-his wife Sarah, the only one he was to have by her, and the only one that was to be the child
-and heir of the promise. Ishmael was to be put off with earthly greatness. The promise of a
-posterity, and of the Messiah, must either be fulfilled by means of this son or not at all; so
-that, besides his most tender affection to this his son, all his expectations were bound up in
-him, and, if he perished, must perish with him. If Abraham had ever so many sons, this was
-the only son who could convey to all nations the promised blessing. A son for whom he
-waited so long, whom he received in so extraordinary a manner, upon whom his heart was
-set—to have this son offered up as a sacrifice, and that by his own hand; it was a trial that
-would have overset the firmest and the strongest mind that ever informed a human body.
-13. The actings of Abraham's faith in so great a trial: he obeyed; he offered up Isaac; he
-intentionally gave him up by his submissive soul to God, and was ready to have done it ac-
-tually, according to the command of God; he went as far in it as to the very critical moment,
-and would have gone through with it if God had not prevented him. Nothing could be more
-tender and moving than those words of Isaac: My father, here is the wood, here is the fire;
-but where is the lamb for the burnt-offering? little thinking that he was to be the lamb; but
-Abraham knew it, and yet he went on with the great design.
-14. The supports of his faith. They must be very great, suitable to the greatness of the
-trial: He accounted that God was able to raise him from the dead, v. 19. His faith was supported
-by the sense he had of the mighty power of God, who was able to raise the dead; he reasoned
-thus with himself, and so he resolved all his doubts. It does not appear that he had any ex-
-1663
-Chapter XI
-pectation of being countermanded, and prevented from offering up his son; such an expect-
-ation would have spoiled the trial, and consequently the triumph, of his faith; but he knew
-that God was able to raise him from the dead, and he believed that God would do so, since
-such great things depended upon his son, which must have failed if Isaac had not a further
-life. Observe, (1.) God is able to raise the dead, to raise dead bodies, and to raise dead souls.
-(2.) The belief of this will carry us through the greatest difficulties and trials that we can
-meet with. (3.) It is our duty to be reasoning down our doubts and fears, by the consideration
-of the almighty power of God.
-15. The reward of his faith in this great trial (v. 19): he received his son from the dead in
-a figure, in a parable. (1.) He received his son. He had parted with him to God, and God
-gave him back again. The best way to enjoy our comforts with comfort is to resign them up
-to God; he will then return them, if not in kind, yet in kindness. (2.) He received him from
-the dead, for he gave him up for dead; he was as a dead child to him, and the return was to
-him no less than a resurrection. (3.) This was a figure or parable of something further. It
-was a figure of the sacrifice and resurrection of Christ, of whom Isaac was a type. It was a
-figure and earnest of the glorious resurrection of all true believers, whose life is not lost, but
-hid with Christ in God. We come now to the faith of other Old-Testament saints, mentioned
-by name, and by the particular trials and actings of their faith.
-VIII. Of the faith of Isaac, v. 20. Something of him we had before interwoven with the
-story of Abraham; here we have something of a distinct nature—that by faith he blessed his
-two sons, Jacob and Esau, concerning things to come. Here observe,
-16. The actings of his faith: He blessed Jacob and Esau concerning things to come. He
-blessed them; that is, he resigned them up to God in covenant; he recommended God and
-religion to them; he prayed for them, and prophesied concerning them, what would be the
-condition, and the condition of their descendants: we have the account of this in Gen. xxvii.
-Observe, (1.) Both Jacob and Esau were blessed as Isaac's children, at least as to temporal
-good things. It is a great privilege to be the offspring of good parents, and often the wicked
-children of good parents fare the better in this world for their parents' sake, for things present
-are in the covenant; but they are not the best things, and no man knoweth love or hatred
-by having or wanting such things. (2.) Jacob had the precedency and the principal blessing,
-which shows that it is grace and the new birth that exalt persons above their fellows and
-qualify them for the best blessings, and that it is owing to the sovereign free grace of God
-that in the same family one is taken and another left, one loved and the other hated, since
-all the race of Adam are by nature hateful to God—that if one has his portion in this world,
-and the other in the better world, it is God who makes the difference; for even the comforts
-of this life are more and better than any of the children of men deserve.
-17. The difficulties Isaac's faith struggled with. (1.) He seemed to have forgotten how
-God had determined the matter at the birth of these his sons, Gen. xxv. 23. This should have
-1664
-Chapter XI
-been a rule to him all along, but he was rather swayed by natural affection, and by general
-custom, which gives the double portion of honour, affection, and advantage, to the first-
-born. (2.) He acted in this matter with some reluctance. When he came to pronounce the
-blessing, he trembled very exceedingly (Gen. xxvii. 33); and he charged Jacob that he had
-subtly taken away Esau's blessing, v. 33, 35. But, notwithstanding all this, Isaac's faith re-
-covered itself, and he ratified the blessing: I have blessed him yea, and he shall be blessed.
-Rebecca and Jacob are not to be justified in the indirect means they used to obtain this
-blessing, but God will be justified in overruling even the sins of men to serve the purposes
-of his glory. Now, the faith of Isaac thus prevailing over his unbelief, it has pleased the God
-of Isaac to pass by the weakness of his faith, to commend the sincerity of it, and record him
-among the elders, who through faith have obtained a good report. We now go on to,
-IX. The faith of Jacob (v. 21), who, when he was dying, blessed both the sons of Joseph,
-and worshipped, leaning upon the top of his staff. There were a great many instances of the
-faith of Jacob; his life was a life of faith, and his faith met with great exercise. But it has
-pleased God to single two instances out of many of the faith of this patriarch, besides what
-has been already mentioned in the account of Abraham. Here observe,
-18. The actings of his faith here mentioned, and they are two:—
-(1.) He blessed both the sons of Joseph, Ephraim and Manasseh; he adopted them into
-the number of his own sons, and so into the congregation of Israel, though they were born
-in Egypt. It is doubtless a great blessing to be joined to the visible church of God in profession
-and privilege, but more to be so in spirit and truth. [1.] He made them both heads of different
-tribes, as if they had been his own immediate sons. [2.] He prayed for them, that they might
-both be blessed of God. [3.] He prophesied that they should be blessed; but, as Isaac did
-before, so now Jacob prefers the younger, Ephraim; and though Joseph had placed them so,
-that the right hand of his father should be laid on Manasseh, the elder, Jacob wittingly laid
-it on Ephraim, and this by divine direction, for he could not see, to show that the Gentile
-church, the younger, should have a more abundant blessing than the Jewish church, the
-elder.
-(2.) He worshipped, leaning on his staff; that is, he praised God for what he had done for
-him, and for the prospect he had of approaching blessedness; and he prayed for those he
-was leaving behind him, that religion might live in his family when he was gone. He did this
-leaning on the top of his staff; not as the papists dream, that he worshipped some image of
-God engraven on the head of his staff, but intimating to us his great natural weakness, that
-he was not able to support himself so far as to sit up in his bed without a staff, and yet that
-he would not make this an excuse for neglecting the worshipping of God; he would do it as
-well as he could with his body, as well as with his spirit, though he could not do it as well as
-he would. He showed thereby his dependence upon God, and testified his condition here
-as a pilgrim with his staff, and his weariness of the world, and willingness to be at rest.
-1665
-Chapter XI
-19. The time and season when Jacob thus acted his faith: when he was dying. He lived
-by faith, and he died by faith and in faith. Observe, Though the grace of faith is of universal
-use throughout our whole lives, yet it is especially so when we come to die. Faith has its
-greatest work to do at last, to help believers to finish well, to die to the Lord, so as to honour
-him, by patience, hope, and joy—so as to leave a witness behind them of the truth of God's
-word and the excellency of his ways, for the conviction and establishment of all who attend
-them in their dying moments. The best way in which parents can finish their course is
-blessing their families and worshipping their God. We have now come to,
-X. The faith of Joseph, v. 22. And here also we consider,
-20. What he did by his faith: He made mention of the departing of the children of Israel,
-and gave commandment concerning his bones. The passage is out of Gen. l. 24, 25. Joseph
-was eminent for his faith, though he had not enjoyed the helps for it which the rest of his
-brethren had. He was sold into Egypt. He was tried by temptations, by sin, by persecution,
-for retaining his integrity. He was tried by preferment and power in the court of Pharaoh,
-and yet his faith held out and carried him through to the last. (1.) He made mention by faith
-of the departing of the children of Israel, that the time should come when they should be
-delivered out of Egypt; and he did this both that he might caution them against the thoughts
-of settling in Egypt, which was now a place of plenty and ease to them; and also that he
-might keep them from sinking under the calamities and distresses which he foresaw were
-coming upon them there; and he does it to comfort himself, that though he should not live
-to see their deliverance, yet he could die in the faith of it. (2.) He gave commandment con-
-cerning his bones, that they should preserve them unburied in Egypt, till God should deliver
-them out of that house of bondage, and that then they should carry his bones along with
-them into Canaan and deposit them there. Though believers are chiefly concerned for their
-souls, yet they cannot wholly neglect their bodies, as being members of Christ and parts of
-themselves, which shall at length be raised up, and be the happy companions of their glorified
-souls to all eternity. Now Joseph gave this order, not that he thought his being buried in
-Egypt would either prejudice his soul or prevent the resurrection of his body (as some of
-the rabbis fancied that all the Jews who were buried out of Canaan must be conveyed under-
-ground to Canaan before they could rise again), but to testify, [1.] That though he had lived
-and died in Egypt, yet he did not live and die an Egyptian, but an Israelite. [2.] That he
-preferred a significant burial in Canaan before a magnificent one in Egypt. [3.] That he
-would go as far with his people as he could, though he could not go as far as he would. [4.]
-That he believed the resurrection of the body, and the communion that his soul should
-presently have with departed saints, as his body had with their dead bodies. [5.] To assure
-them that God would be with them in Egypt, and deliver them out of it in his own time and
-way.
-1666
-Chapter XI
-21. When it was that the faith of Joseph acted after this manner; namely, as in the case
+great example observe, 
+	1. The trial and exercise of Abraham's faith; he was tried indeed. It is said (Gen. xxii. 1), God in this tempted Abraham; not to sin, for so God tempteth no man, but only tried his faith and obedience to purpose. God had before this tempted or tried the faith of Abraham, when he called him away from his country and father's house,—when by a famine he was forced out of Canaan into Egypt,—when he was obliged to fight with five kings to rescue Lot,—when Sarah was taken from him by Abimelech, and in many other instances. But this trial was greater than all; he was commanded to offer up his son Isaac. Read the account of it, Gen. xxii. There you will find every word was a trial: "Take now thy son, thine only son Isaac, whom thou lovest, and get thee into the land of Moriah, and offer him there for a burnt offering upon one of the mountains which I will tell thee of. Take thy son, not one of thy beasts or slaves, thy only son by Sarah, Isaac thy laughter, the child of thy joy and delight, whom thou lovest as thine own soul; take him away to a distant place, three days' journey, the land of Moriah; do not only leave him there, but offer him for a burnt offering." A greater trial was never put upon any creature. The apostle here mentions some things that very much added to the greatness of this trial. 
+		1. He was put upon it after he had received the promises, that this Isaac should build up his family, that in him his seed should be called (v. 18), and that he should be one of the progenitors of the Messiah, and all nations blessed in him; so that, in being called to offer up his Isaac, he seemed to be called to destroy and cut off his own family, to cancel the promises of God, to prevent the coming of Christ, to destroy the whole world, to sacrifice his own soul and his hopes of salvation, and to cut off the church of God at one blow: a most terrible trial! 
+		2. That this Isaac was his only-begotten son by his wife Sarah, the only one he was to have by her, and the only one that was to be the child and heir of the promise. Ishmael was to be put off with earthly greatness. The promise of a posterity, and of the Messiah, must either be fulfilled by means of this son or not at all; so that, besides his most tender affection to this his son, all his expectations were bound up in him, and, if he perished, must perish with him. If Abraham had ever so many sons, this was the only son who could convey to all nations the promised blessing. A son for whom he waited so long, whom he received in so extraordinary a manner, upon whom his heart was set—to have this son offered up as a sacrifice, and that by his own hand; it was a trial that would have overset the firmest and the strongest mind that ever informed a human body.
+	2. The actings of Abraham's faith in so great a trial: he obeyed; he offered up Isaac; he intentionally gave him up by his submissive soul to God, and was ready to have done it actually, according to the command of God; he went as far in it as to the very critical moment, and would have gone through with it if God had not prevented him. Nothing could be more tender and moving than those words of Isaac: My father, here is the wood, here is the fire; but where is the lamb for the burnt-offering? little thinking that he was to be the lamb; but Abraham knew it, and yet he went on with the great design.
+	3. The supports of his faith. They must be very great, suitable to the greatness of the trial: He accounted that God was able to raise him from the dead, v. 19. His faith was supported by the sense he had of the mighty power of God, who was able to raise the dead; he reasoned thus with himself, and so he resolved all his doubts. It does not appear that he had any expectation of being countermanded, and prevented from offering up his son; such an expectation would have spoiled the trial, and consequently the triumph, of his faith; but he knew that God was able to raise him from the dead, and he believed that God would do so, since such great things depended upon his son, which must have failed if Isaac had not a further life. Observe, 
+		1. God is able to raise the dead, to raise dead bodies, and to raise dead souls. 
+		2. The belief of this will carry us through the greatest difficulties and trials that we can meet with. 
+		3. It is our duty to be reasoning down our doubts and fears, by the consideration of the almighty power of God. 
+	4. The reward of his faith in this great trial (v. 19): he received his son from the dead in a figure, in a parable. 
+		1. He received his son. He had parted with him to God, and God gave him back again. The best way to enjoy our comforts with comfort is to resign them up to God; he will then return them, if not in kind, yet in kindness. 
+		2. He received him from the dead, for he gave him up for dead; he was as a dead child to him, and the return was to him no less than a resurrection. 
+		3. This was a figure or parable of something further. It was a figure of the sacrifice and resurrection of Christ, of whom Isaac was a type. It was a figure and earnest of the glorious resurrection of all true believers, whose life is not lost, but hid with Christ in God. We come now to the faith of other Old-Testament saints, mentioned by name, and by the particular trials and actings of their faith.
+8. Of the faith of Isaac, v. 20. Something of him we had before interwoven with the story of Abraham; here we have something of a distinct nature—that by faith he blessed his two sons, Jacob and Esau, concerning things to come. Here observe, 
+	1. The actings of his faith: He blessed Jacob and Esau concerning things to come. He blessed them; that is, he resigned them up to God in covenant; he recommended God and religion to them; he prayed for them, and prophesied concerning them, what would be the condition, and the condition of their descendants: we have the account of this in Gen. xxvii. Observe, 
+		1. Both Jacob and Esau were blessed as Isaac's children, at least as to temporal good things. It is a great privilege to be the offspring of good parents, and often the wicked children of good parents fare the better in this world for their parents' sake, for things present are in the covenant; but they are not the best things, and no man knoweth love or hatred by having or wanting such things. 
+		2. Jacob had the precedency and the principal blessing, which shows that it is grace and the new birth that exalt persons above their fellows and qualify them for the best blessings, and that it is owing to the sovereign free grace of God that in the same family one is taken and another left, one loved and the other hated, since all the race of Adam are by nature hateful to God—that if one has his portion in this world, and the other in the better world, it is God who makes the difference; for even the comforts of this life are more and better than any of the children of men deserve. 
+	2. The difficulties Isaac's faith struggled with. 
+		1. He seemed to have forgotten how God had determined the matter at the birth of these his sons, Gen. xxv. 23. This should have been a rule to him all along, but he was rather swayed by natural affection, and by general custom, which gives the double portion of honour, affection, and advantage, to the first-born. 
+		2. He acted in this matter with some reluctance. When he came to pronounce the blessing, he trembled very exceedingly (Gen. xxvii. 33); and he charged Jacob that he had subtly taken away Esau's blessing, v. 33, 35. But, notwithstanding all this, Isaac's faith recovered itself, and he ratified the blessing: I have blessed him yea, and he shall be blessed. Rebecca and Jacob are not to be justified in the indirect means they used to obtain this blessing, but God will be justified in overruling even the sins of men to serve the purposes of his glory. Now, the faith of Isaac thus prevailing over his unbelief, it has pleased the God of Isaac to pass by the weakness of his faith, to commend the sincerity of it, and record him among the elders, who through faith have obtained a good report. We now go on to, 
+9. The faith of Jacob (v. 21), who, when he was dying, blessed both the sons of Joseph, and worshipped, leaning upon the top of his staff. There were a great many instances of the faith of Jacob; his life was a life of faith, and his faith met with great exercise. But it has pleased God to single two instances out of many of the faith of this patriarch, besides what has been already mentioned in the account of Abraham. Here observe,
+	1. The actings of his faith here mentioned, and they are two:—
+		1. He blessed both the sons of Joseph, Ephraim and Manasseh; he adopted them into the number of his own sons, and so into the congregation of Israel, though they were born in Egypt. It is doubtless a great blessing to be joined to the visible church of God in profession and privilege, but more to be so in spirit and truth. 
+			1. He made them both heads of different tribes, as if they had been his own immediate sons. 
+			2. He prayed for them, that they might both be blessed of God. 
+			3. He prophesied that they should be blessed; but, as Isaac did before, so now Jacob prefers the younger, Ephraim; and though Joseph had placed them so, that the right hand of his father should be laid on Manasseh, the elder, Jacob wittingly laid it on Ephraim, and this by divine direction, for he could not see, to show that the Gentile church, the younger, should have a more abundant blessing than the Jewish church, the elder. 
+		2. He worshipped, leaning on his staff; that is, he praised God for what he had done for him, and for the prospect he had of approaching blessedness; and he prayed for those he was leaving behind him, that religion might live in his family when he was gone. He did this leaning on the top of his staff; not as the papists dream, that he worshipped some image of God engraven on the head of his staff, but intimating to us his great natural weakness, that he was not able to support himself so far as to sit up in his bed without a staff, and yet that he would not make this an excuse for neglecting the worshipping of God; he would do it as well as he could with his body, as well as with his spirit, though he could not do it as well as he would. He showed thereby his dependence upon God, and testified his condition here as a pilgrim with his staff, and his weariness of the world, and willingness to be at rest.
+	2. The time and season when Jacob thus acted his faith: when he was dying. He lived by faith, and he died by faith and in faith. Observe, Though the grace of faith is of universal use throughout our whole lives, yet it is especially so when we come to die. Faith has its greatest work to do at last, to help believers to finish well, to die to the Lord, so as to honour him, by patience, hope, and joy—so as to leave a witness behind them of the truth of God's word and the excellency of his ways, for the conviction and establishment of all who attend them in their dying moments. The best way in which parents can finish their course is blessing their families and worshipping their God. We have now come to,
+10. The faith of Joseph, v. 22. And here also we consider,
+	1. What he did by his faith: He made mention of the departing of the children of Israel, and gave commandment concerning his bones. The passage is out of Gen. l. 24, 25. Joseph was eminent for his faith, though he had not enjoyed the helps for it which the rest of his brethren had. He was sold into Egypt. He was tried by temptations, by sin, by persecution, for retaining his integrity. He was tried by preferment and power in the court of Pharaoh, and yet his faith held out and carried him through to the last. 
+		1. He made mention by faith of the departing of the children of Israel, that the time should come when they should be delivered out of Egypt; and he did this both that he might caution them against the thoughts of settling in Egypt, which was now a place of plenty and ease to them; and also that he might keep them from sinking under the calamities and distresses which he foresaw were coming upon them there; and he does it to comfort himself, that though he should not live to see their deliverance, yet he could die in the faith of it. 
+		2. He gave commandment concerning his bones, that they should preserve them unburied in Egypt, till God should deliver them out of that house of bondage, and that then they should carry his bones along with them into Canaan and deposit them there. Though believers are chiefly concerned for their souls, yet they cannot wholly neglect their bodies, as being members of Christ and parts of themselves, which shall at length be raised up, and be the happy companions of their glorified souls to all eternity. Now Joseph gave this order, not that he thought his being buried in Egypt would either prejudice his soul or prevent the resurrection of his body (as some of the rabbis fancied that all the Jews who were buried out of Canaan must be conveyed underground to Canaan before they could rise again), but to testify, [1.] That though he had livedand died in Egypt, yet he did not live and die an Egyptian, but an Israelite. [2.] That he preferred a significant burial in Canaan before a magnificent one in Egypt. [3.] That he would go as far with his people as he could, though he could not go as far as he would. [4.] That he believed the resurrection of the body, and the communion that his soul should presently have with departed saints, as his body had with their dead bodies. [5.] To assure them that God would be with them in Egypt, and deliver them out of it in his own time and way.
+
+11. When it was that the faith of Joseph acted after this manner; namely, as in the case
 of Jacob, when he was dying. God often gives his people living comforts in dying moments;
 and when he does it is their duty, as they can, to communicate them to those about them,
 for the glory of God, for the honour of religion, and for the good of their brethren and
 friends. We go on now to,
 XI. The faith of the parents of Moses, which is cited from Exod. ii. 3, &c. Here observe,
-22. The acting of their faith: they hid this their son three months. Though only the mother
+12. The acting of their faith: they hid this their son three months. Though only the mother
 of Moses is mentioned in the history, yet, by what is here said, it seems his father not only
 consented to it, but consulted about it. It is a happy thing where yoke-fellows draw together
 in the yoke of faith, as heirs of the grace of God; and when they do this in a religious concern
@@ -451,7 +242,7 @@ and its subordination to the will and power of God. The apostle next proceeds to
 XII. The faith of Moses himself (v. 24, 25, &c.), here observe,
 1667
 Chapter XI
-23. An instance of his faith in conquering the world.
+13. An instance of his faith in conquering the world.
 (1.) He refused to be called the son of Pharaoh's daughter, whose foundling he was, and
 her fondling too; she had adopted him for his son, and he refused it. Observe, [1.] How great
 a temptation Moses was under. Pharaoh's daughter is said to have been his only child, and
@@ -480,7 +271,7 @@ evil in the least sin than there can be in the greatest suffering. [4.] It great
 evil of suffering when we suffer with the people of God, embarked in the same interest and
 animated by the same Spirit.
 (3.) He accounted the reproaches of Christ greater riches than the treasures of Egypt, v.
-24. See how Moses weighed matters: in one scale he put the worst of religion—the reproaches
+14. See how Moses weighed matters: in one scale he put the worst of religion—the reproaches
 of Christ, in the other scale the best of the world—the treasures of Egypt; and in his judgment,
 directed by faith, the worst of religion weighed down the best of the world. The reproaches
 of the church of God are the reproaches of Christ, who is, and has ever been, the head of the
@@ -492,7 +283,7 @@ their reproaches, they become riches, and greater riches than the treasures of t
 Chapter XI
 empire in the world; for Christ will reward them with a crown of glory that fades not away.
 Faith discerns this, and determines and acts accordingly.
-25. The circumstance of time is taken notice of, when Moses by his faith gained this victory
+15. The circumstance of time is taken notice of, when Moses by his faith gained this victory
 over the world, in all its honours, pleasures, and treasures: When he had come to years (v.
 24); not only to years of discretion, but of experience, to the age of forty years—when he
 was great, or had come to maturity. Some would take this as detracting from his victory,
@@ -503,7 +294,7 @@ he did it. It was not the act of a child, that prefers counters to gold, but it 
 mature deliberation. It is an excellent thing for persons to be seriously religious when in the
 midst of worldly business and enjoyments, to despise the world when they are most capable
 of relishing and enjoying it.
-26. What it was that supported and strengthened the faith of Moses to such a degree as
+16. What it was that supported and strengthened the faith of Moses to such a degree as
 to enable him to gain such a victory over the world: He had respect unto the recompense of
 reward, that is, say some, the deliverance out of Egypt; but doubtless it means much
 more—the glorious reward of faith and fidelity in the other world. Observe here, (1.)
@@ -516,7 +307,7 @@ recompense of reward; they should acquaint themselves with it, approve of it, an
 the daily and delightful expectation of it. Thus it will prove a land-mark to direct their course,
 a load-stone to draw their hearts, a sword to conquer their enemies, a spur to quicken them
 to duty, and a cordial to refresh them under all the difficulties of doing and suffering work.
-27. We have another instance of the faith of Moses, namely, in forsaking Egypt: By faith
+17. We have another instance of the faith of Moses, namely, in forsaking Egypt: By faith
 he forsook Egypt, not fearing the wrath of the king, v. 27. Observe here, (1.) The product of
 his faith: He forsook Egypt, and all its power and pleasures, and undertook the conduct of
 Israel out of it. Twice Moses forsook Egypt: [1.] As a supposed criminal, when the king's
@@ -540,7 +331,7 @@ man hath seen, nor can see. [2.] By faith we may see this invisible God. We may 
 sured of his existence, of his providence, and of his gracious and powerful presence with
 us. [3.] Such a sight of God will enable believers to endure to the end whatever they may
 meet with in the way.
-28. We have yet another instance of the faith of Moses, in keeping the passover and
+18. We have yet another instance of the faith of Moses, in keeping the passover and
 sprinkling of blood, v. 28. The account of this we have in Exod. xii. 13-23. Though all Israel
 kept this passover, yet it was by Moses that God delivered the institution of it; and, though
 it was a great mystery, Moses by faith both delivered it to the people and kept it that night
@@ -572,14 +363,14 @@ grace.
 Chapter XI
 XIII. The next instance of faith is that of the Israelites passing through the Red Sea under
 the conduct of Moses their leader, v. 29. The story we have in Exodus, ch. xiv. Observe,
-29. The preservation and safe passage of the Israelites through the Red Sea, when there
+19. The preservation and safe passage of the Israelites through the Red Sea, when there
 was no other way to escape from Pharaoh and his host, who were closely pursuing them.
 Here we may observe, (1.) Israel's danger was very great; an enraged enemy with chariots
 and horsemen behind them; steep rocks and mountains on either hand, and the Red Sea
 before them. (2.) Their deliverance was very glorious. By faith they passed through the Red
 Sea as on dry land; the grace of faith will help us through all the dangers we meet with in
 our way to heaven.
-30. The destruction of the Egyptians. They, presumptuously attempting to follow Israel
+20. The destruction of the Egyptians. They, presumptuously attempting to follow Israel
 through the Red Sea, being thus blinded and hardened to their ruin, were all drowned. Their
 rashness was great, and their ruin was grievous. When God judges, he will overcome; and
 it is plain that the destruction of sinners is of themselves.
@@ -605,7 +396,7 @@ some great thing to do for them, he raises up great and strong faith in them.
 XV. The next instance is the faith of Rahab, v. 31. Among the noble army of believing
 worthies, bravely marshalled by the apostle, Rahab comes in the rear, to show that God is
 no respecter of persons. Here consider,
-31. Who this Rahab was. (1.) She was a Canaanite, a stranger to the commonwealth of Israel,
+21. Who this Rahab was. (1.) She was a Canaanite, a stranger to the commonwealth of Israel,
 and had but little help for faith, and yet she was a believer; the power of divine grace greatly
 appears when it works without the usual means of grace. (2.) She was a harlot, and lived in
 1671
@@ -614,7 +405,7 @@ a way of sin; she was not only a keeper of a public house, but a common woman of
 and yet she believed that the greatness of sin, if truly repented of, shall be no bar to the
 pardoning mercy of God. Christ has saved the chief of sinners. Where sin has abounded,
 grace has superabounded.
-32. What she did by her faith: She received the spies in peace, the men that Joshua had
+22. What she did by her faith: She received the spies in peace, the men that Joshua had
 sent to spy out Jericho, Josh. ii. 6, 7. She not only bade them welcome, but she concealed
 them from their enemies who sought to cut them off, and she made a noble confession of
 her faith, v. 9-11. She engaged them to covenant with her to show favour to her and hers,
@@ -659,7 +450,7 @@ their faith, though the objects thereof were not then so fully revealed. And, 4.
 lament it, that now, in gospel times, when the rule of faith is more clear and perfect, the
 number of believers should be so small and their faith so weak.
 I. In this summary account the apostle mentions,
-33. Gideon, whose story we have in Judges vi. 11, &c. He was an eminent instrument
+23. Gideon, whose story we have in Judges vi. 11, &c. He was an eminent instrument
 raised up of God to deliver his people from the oppression of the Midianites; he was a person
 of mean tribe and family, called from a mean employment (threshing wheat), and saluted
 by an angel of God in this surprising manner, The Lord is with thee, thou mighty man of
@@ -673,14 +464,14 @@ the same faith that gave Gideon so much courage and honour enabled him to act wi
 meekness and modesty towards his brethren afterwards. It is the excellency of the grace of
 faith that, while it helps men to do great things, it keeps them from having high and great
 thoughts of themselves.
-34. Barak, another instrument raised up to deliver Israel out of the hand of Jabin, king
+24. Barak, another instrument raised up to deliver Israel out of the hand of Jabin, king
 of Canaan, Judges 4, where we read, (1.) Though he was a soldier, yet he received his com-
 mission and instructions from Deborah, a prophetess of the Lord; and he insisted upon
 having this divine oracle with him in his expedition. (2.) He obtained a great victory by his
 faith over all the host of Sisera. (3.) His faith taught him to return all the praise and glory
 to God: this is the nature of faith; it has recourse unto God in all dangers and difficulties,
 and then makes grateful returns to God for all mercies and deliverances.
-35. Samson, another instrument that God raised up to deliver Israel from the Philistines:
+25. Samson, another instrument that God raised up to deliver Israel from the Philistines:
 his story we have in Judges xiii., xiv., xv., and xvi., and from it we learn that the grace of
 faith is the strength of the soul for great service. If Samson had not had a strong faith as well
 as a strong arm, he had never performed such exploits. Observe, (1.) By faith the servants
@@ -690,7 +481,7 @@ dying, gives him victory over death and all his deadly enemies; his greatest con
 by dying.
 1673
 Chapter XI
-36. Jephthah, whose story we have, Judg. xi., before that of Samson. He was raised up to
+26. Jephthah, whose story we have, Judg. xi., before that of Samson. He was raised up to
 deliver Israel from the Ammonites. As various and new enemies rise up against the people
 of God, various and new deliverers are raised up for them. In the story of Jephthah observe,
 (1.) The grace of God often finds out, and fastens upon, the most undeserving and ill-de-
@@ -701,7 +492,7 @@ of faith will make men bold and venturous in a good cause. (4.) Faith will not o
 upon making their vows to God, but paying their vows after the mercy received; yea, though
 they have vowed to their own great grief, hurt, and loss, as in the case of Jephthah and his
 daughter.
-37. David, that great man after God's own heart. Few ever met with greater trials, and
+27. David, that great man after God's own heart. Few ever met with greater trials, and
 few ever discovered a more lively faith. His first appearance on the stage of the world was
 a great evidence of his faith. Having, when young, slain the lion and the bear, his faith in
 God encouraged him to encounter the great Goliath, and helped him to triumph over him.
@@ -712,12 +503,12 @@ and honour (though not without some foul stains of sin), he died in faith, relyi
 everlasting covenant that God had made with him and his, ordered in all things and sure;
 and he has left behind him such excellent memoirs of the trials and acts of faith in the book
 of Psalms as will ever be of great esteem and use, among the people of God.
-38. Samuel, raised up to be a most eminent prophet of the Lord to Israel, as well as a ruler
+28. Samuel, raised up to be a most eminent prophet of the Lord to Israel, as well as a ruler
 over them. God revealed himself to Samuel when he was but a child, and continued to do
 so till his death. In his story observe, (1.) Those are likely to grow up to some eminency in
 faith who begin betimes in the exercise of it. (2.) Those whose business it is to reveal the
 mind and will of God to others had need to be well established in the belief of it themselves.
-39. To Samuel he adds, and of the prophets, who were extraordinary ministers of the Old-
+29. To Samuel he adds, and of the prophets, who were extraordinary ministers of the Old-
 Testament church, employed of God sometimes to denounce judgment, sometimes to
 promise mercy, always to reprove sin; sometimes to foretell remarkable events, known only
 to God; and chiefly to give notice of the Messiah, his coming, person, and offices; for in him
@@ -729,24 +520,24 @@ persons named; but he mentions other things that are not so easy to be accommoda
 any here named, but must be left to general conjecture or accommodation.
 1674
 Chapter XI
-40. By faith they subdued kingdoms, v. 33. Thus did David, Joshua, and many of the judges.
+30. By faith they subdued kingdoms, v. 33. Thus did David, Joshua, and many of the judges.
 Learn hence, (1.) The interests and powers of kings and kingdoms are often set up in oppos-
 ition to God and his people. (2.) God can easily subdue all those kings and kingdoms that
 set themselves to oppose him. (3.) Faith is a suitable and excellent qualification of those who
 fight in the ways of the Lord; it makes them just, bold, and wise.
-41. They wrought righteousness, both in their public and personal capacities; they turned
+31. They wrought righteousness, both in their public and personal capacities; they turned
 many from idolatry to the ways of righteousness; they believed God, and it was imputed to
 them for righteousness; they walked and acted righteously towards God and man. It is a
 greater honour and happiness to work righteousness than to work miracles; faith is an active
 principle of universal righteousness.
-42. They obtained promises, both general and special. It is faith that gives us an interest
+32. They obtained promises, both general and special. It is faith that gives us an interest
 in the promises; it is by faith that we have the comfort of the promises; and it is by faith that
 we are prepared to wait for the promises, and in due time to receive them.
-43. They stopped the mouths of lions; so did Samson, Judg. xiv. 5, 6, and David, 1 Sam.
+33. They stopped the mouths of lions; so did Samson, Judg. xiv. 5, 6, and David, 1 Sam.
 xvii. 34, 35, and Daniel, 6:22. Here learn, (1.) The power of God is above the power of the
 creature. (2.) Faith engages the power of God for his people, whenever it shall be for his
 glory, to overcome brute beasts and brutish men.
-44. They quenched the violence of the fire, v. 34. So Moses, by the prayer of faith, quenched
+34. They quenched the violence of the fire, v. 34. So Moses, by the prayer of faith, quenched
 the fire of God's wrath that was kindled against the people of Israel, Num. xi. 1, 2. So did
 the three children, or rather mighty champions, Dan. iii. 17-27. Their faith in God, refusing
 to worship the golden image, exposed them to the fiery furnace which Nebuchadnezzar had
@@ -754,13 +545,13 @@ prepared for them, and their faith engaged for them that power and presence of G
 furnace which quenched the violence of the fire, so that not so much as the smell thereof
 passed on them. Never was the grace of faith more severely tried, never more nobly exerted,
 nor ever more gloriously rewarded, than theirs was.
-45. They escaped the edge of the sword. Thus David escaped the sword of Goliath and of
+35. They escaped the edge of the sword. Thus David escaped the sword of Goliath and of
 Saul; and Mordecai and the Jews escaped the sword of Haman. The swords of men are held
 in the hand of God, and he can blunt the edge of the sword, and turn it away from his people
 against their enemies when he pleases. Faith takes hold of that hand of God which has hold
 of the swords of men; and God has often suffered himself to be prevailed upon by the faith
 of his people.
-46. Out of weakness they were made strong. From national weakness, into which the Jews
+36. Out of weakness they were made strong. From national weakness, into which the Jews
 often fell by their unbelief; upon the revival of their faith, all their interest and affairs revived
 and flourished. From bodily weakness; thus Hezekiah, believing the word of God, recovered
 out of a mortal distemper, and he ascribed his recovery to the promise and power of God
@@ -769,14 +560,14 @@ these things men live, and in these is the life of my spirit. And it is the same
 from spiritual weakness helps men to recover and renew their strength.
 1675
 Chapter XI
-47. They grew valiant in fight. So did Joshua, the judges, and David. True faith gives truest
+37. They grew valiant in fight. So did Joshua, the judges, and David. True faith gives truest
 courage and patience, as it discerns the strength of God, and thereby the weakness of all his
 enemies. And they were not only valiant, but successful. God, as a reward and encouragement
 of their faith, put to flight the armies of the aliens, of those who were aliens to their common-
 wealth, and enemies to their religion; God made them flee and fall before his faithful servants.
 Believing and praying commanders, at the head of believing and praying armies, have been
 so owned and honoured of God that nothing could stand before them.
-48. Women received their dead raised to life again, v. 35. So did the widow of Zarepath
+38. Women received their dead raised to life again, v. 35. So did the widow of Zarepath
 (1 Kings xvii. 23), and the Shunamite, 2 Kings iv. 36. (1.) In Christ there is neither male nor
 female; many of the weaker sex have been strong in faith. (2.) Though the covenant of grace
 takes in the children of believers, yet it leaves them subject to natural death. (3.) Poor
@@ -827,7 +618,7 @@ of all good men, and of the truth itself, and have the honour to be enrolled in 
 calendar of the Old-Testament worthies, God's witnesses; yea, they had a witness for them
 in the consciences of their enemies, who, while they thus abused them, were condemned
 by their own consciences, as persecuting those who were more righteous than themselves.
-49. They obtained an interest in the promises, though not the full possession of them. They
+39. They obtained an interest in the promises, though not the full possession of them. They
 had a title to the promises, though they received not the great things promised. This is not
 meant of the felicity of the heavenly state, for this they did receive, when they died, in the
 measure of a part, in one constituent part of their persons, and the much better part; but it

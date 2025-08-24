@@ -55,4 +55,6 @@ What then is faith?
 - faith is the means by which "we understand that the worlds were prepared by the word of God, so that what is seen was not made out of things which are visible."
 	- is has been said that when the Bible teaches that God created the world by His Word that Jesus is already in view, that Jesus being part of the triune God was not created but is co-eternal with the Father and thus was present at the Creation and further if I am understanding Hebrews 11:3 properly that Jesus was also the means by which the worlds were prepared and not merely a trinitarian spectator.
 	- Would Christian scientists say that atoms, dark matter, whatever else were the "building blocks of creation" are in view of "things which are visible" or would they say that since it's small, microscopic, etc. that they are not visible
-	- 
+
+
+Kierkegaard's Fear and Trembling, regarding Abraham's faith. 
