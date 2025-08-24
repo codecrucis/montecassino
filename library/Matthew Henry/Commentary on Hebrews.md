@@ -201,89 +201,12 @@ great example observe,
 	1. What he did by his faith: He made mention of the departing of the children of Israel, and gave commandment concerning his bones. The passage is out of Gen. l. 24, 25. Joseph was eminent for his faith, though he had not enjoyed the helps for it which the rest of his brethren had. He was sold into Egypt. He was tried by temptations, by sin, by persecution, for retaining his integrity. He was tried by preferment and power in the court of Pharaoh, and yet his faith held out and carried him through to the last. 
 		1. He made mention by faith of the departing of the children of Israel, that the time should come when they should be delivered out of Egypt; and he did this both that he might caution them against the thoughts of settling in Egypt, which was now a place of plenty and ease to them; and also that he might keep them from sinking under the calamities and distresses which he foresaw were coming upon them there; and he does it to comfort himself, that though he should not live to see their deliverance, yet he could die in the faith of it. 
 		2. He gave commandment concerning his bones, that they should preserve them unburied in Egypt, till God should deliver them out of that house of bondage, and that then they should carry his bones along with them into Canaan and deposit them there. Though believers are chiefly concerned for their souls, yet they cannot wholly neglect their bodies, as being members of Christ and parts of themselves, which shall at length be raised up, and be the happy companions of their glorified souls to all eternity. Now Joseph gave this order, not that he thought his being buried in Egypt would either prejudice his soul or prevent the resurrection of his body (as some of the rabbis fancied that all the Jews who were buried out of Canaan must be conveyed underground to Canaan before they could rise again), but to testify, [1.] That though he had livedand died in Egypt, yet he did not live and die an Egyptian, but an Israelite. [2.] That he preferred a significant burial in Canaan before a magnificent one in Egypt. [3.] That he would go as far with his people as he could, though he could not go as far as he would. [4.] That he believed the resurrection of the body, and the communion that his soul should presently have with departed saints, as his body had with their dead bodies. [5.] To assure them that God would be with them in Egypt, and deliver them out of it in his own time and way.
-
-11. When it was that the faith of Joseph acted after this manner; namely, as in the case
-of Jacob, when he was dying. God often gives his people living comforts in dying moments;
-and when he does it is their duty, as they can, to communicate them to those about them,
-for the glory of God, for the honour of religion, and for the good of their brethren and
-friends. We go on now to,
-XI. The faith of the parents of Moses, which is cited from Exod. ii. 3, &c. Here observe,
-12. The acting of their faith: they hid this their son three months. Though only the mother
-of Moses is mentioned in the history, yet, by what is here said, it seems his father not only
-consented to it, but consulted about it. It is a happy thing where yoke-fellows draw together
-in the yoke of faith, as heirs of the grace of God; and when they do this in a religious concern
-for the good of their children, to preserve them not only from those who would destroy
-their lives, but from those who would corrupt their minds. Observe, Moses was persecuted
-betimes, and forced to be concealed; in this he was a type of Christ, who was persecuted al-
-most as soon as he was born, and his parents were obliged to flee with him into Egypt for
-his preservation. It is a great mercy to be free from wicked laws and edicts; but, when we
-are not, we must use all lawful means for our security. In this faith of Moses's parents there
-was a mixture of unbelief, but God was pleased to overlook it. 2. The reasons of their thus
-acting. No doubt, natural affection could not but move them; but there was something further.
-They saw he was a proper child, a goodly child (Exod. ii. 2), exceedingly fair, as in Acts vii.
-20, asteios to Theo—venustus Deo—fair to God. There appeared in him something uncom-
-mon; the beauty of the Lord sat upon him, as a presage that he was born to great things, and
-that by conversing with God his face should shine (Exod. xxxiv. 29), what bright and illus-
-trious actions he should do for the deliverance of Israel, and how his name should shine in
-the sacred records. Sometimes, not always, the countenance is the index of the mind. 3. The
-prevalency of their faith over their fear. They were not afraid of the king's commandment,
-Exod. i. 22. That was a wicked and a cruel edict, that all the males of the Israelites should
-be destroyed in their infancy, and so the name of Israel must be destroyed out of the earth.
-But they did not so fear as presently to give up their child; they considered that, if none of
-the males were preserved, there would be an end and utter ruin of the church of God and
-the true religion, and that though in their present state of servitude and oppression one
-would praise the dead rather than the living, yet they believed that God would preserve his
-people, and that the time was coming when it would be worth while for an Israelite to live.
-Some must hazard their own lives to preserve their children, and they were resolved to do
-it; they knew the king's commandment was evil in itself, contrary to the laws of God and
-nature, and therefore of no authority nor obligation. Faith is a great preservative against the
-sinful slavish fear of men, as it sets God before the soul, and shows the vanity of the creature
-and its subordination to the will and power of God. The apostle next proceeds to,
-XII. The faith of Moses himself (v. 24, 25, &c.), here observe,
-1667
-Chapter XI
-13. An instance of his faith in conquering the world.
-(1.) He refused to be called the son of Pharaoh's daughter, whose foundling he was, and
-her fondling too; she had adopted him for his son, and he refused it. Observe, [1.] How great
-a temptation Moses was under. Pharaoh's daughter is said to have been his only child, and
-was herself childless; and having found Moses, and saved him as she did, she resolved to
-take him and bring him up as her son; and so he stood fair to be in time king of Egypt, and
-he might thereby have been serviceable to Israel. He owed his life to this princess; and to
-refuse such kindness from her would look not only like ingratitude to her, but a neglect of
-Providence, that seemed to intend his advancement and his brethren's advantage. [2.] How
-glorious was the triumph of his faith in so great a trial. He refused to be called the son of
-Pharaoh's daughter lest he should undervalue the truer honour of being a son of Abraham,
-the father of the faithful; he refused to be called the son of Pharaoh's daughter lest it should
-look like renouncing his religion as well as his relation to Israel; and no doubt both these
-he must have done if he had accepted this honour; he therefore nobly refused it.
-(2.) He chose rather to suffer affliction with the people of God than to enjoy the pleasures
-of sin for a season, v. 25. He was willing to take his lot with the people of God here, though
-it was a suffering lot, that he might have his portion with them hereafter, rather than to enjoy
-all the sensual sinful pleasures of Pharaoh's court, which would be but for a season, and
-would then be punished with everlasting misery. Herein he acted rationally as well as reli-
-giously, and conquered the temptation to worldly pleasure as he had done before to worldly
-preferment. Here observe, [1.] The pleasures of sin are and will be but short; they must end
-in speedy repentance or in speedy ruin. [2.] The pleasures of this world, and especially those
-of a court, are too often the pleasures of sin; and they are always so when we cannot enjoy
-them without deserting God and his people. A true believer will despise them when they
-are offered upon such terms. [3.] Suffering is to be chosen rather than sin, there being more
-evil in the least sin than there can be in the greatest suffering. [4.] It greatly alleviates the
-evil of suffering when we suffer with the people of God, embarked in the same interest and
-animated by the same Spirit.
-(3.) He accounted the reproaches of Christ greater riches than the treasures of Egypt, v.
-14. See how Moses weighed matters: in one scale he put the worst of religion—the reproaches
-of Christ, in the other scale the best of the world—the treasures of Egypt; and in his judgment,
-directed by faith, the worst of religion weighed down the best of the world. The reproaches
-of the church of God are the reproaches of Christ, who is, and has ever been, the head of the
-church. Now here Moses conquered the riches of the world, as before he had conquered its
-honours and pleasures. God's people are, and always have been, a reproached people. Christ
-accounts himself reproached in their reproaches; and, while he thus interests himself in
-their reproaches, they become riches, and greater riches than the treasures of the richest
-1668
-Chapter XI
-empire in the world; for Christ will reward them with a crown of glory that fades not away.
-Faith discerns this, and determines and acts accordingly.
-15. The circumstance of time is taken notice of, when Moses by his faith gained this victory
+	2. When it was that the faith of Joseph acted after this manner; namely, as in the case of Jacob, when he was dying. God often gives his people living comforts in dying moments; and when he does it is their duty, as they can, to communicate them to those about them, for the glory of God, for the honour of religion, and for the good of their brethren and friends. We go on now to,
+11. The faith of the parents of Moses, which is cited from Exod. ii. 3, &c. Here observe, 
+	1. The acting of their faith: they hid this their son three months. Though only the mother of Moses is mentioned in the history, yet, by what is here said, it seems his father not only consented to it, but consulted about it. It is a happy thing where yoke-fellows draw together in the yoke of faith, as heirs of the grace of God; and when they do this in a religious concern for the good of their children, to preserve them not only from those who would destroy their lives, but from those who would corrupt their minds. Observe, Moses was persecuted betimes, and forced to be concealed; in this he was a type of Christ, who was persecuted almost as soon as he was born, and his parents were obliged to flee with him into Egypt for his preservation. It is a great mercy to be free from wicked laws and edicts; but, when we are not, we must use all lawful means for our security. In this faith of Moses's parents there was a mixture of unbelief, but God was pleased to overlook it. 2. The reasons of their thus acting. No doubt, natural affection could not but move them; but there was something further. They saw he was a proper child, a goodly child (Exod. ii. 2), exceedingly fair, as in Acts vii. 20, asteios to Theo—venustus Deo—fair to God. There appeared in him something uncom- mon; the beauty of the Lord sat upon him, as a presage that he was born to great things, and that by conversing with God his face should shine (Exod. xxxiv. 29), what bright and illustrious actions he should do for the deliverance of Israel, and how his name should shine in the sacred records. Sometimes, not always, the countenance is the index of the mind. 3. The prevalency of their faith over their fear. They were not afraid of the king's commandment, Exod. i. 22. That was a wicked and a cruel edict, that all the males of the Israelites should be destroyed in their infancy, and so the name of Israel must be destroyed out of the earth. But they did not so fear as presently to give up their child; they considered that, if none of the males were preserved, there would be an end and utter ruin of the church of God and the true religion, and that though in their present state of servitude and oppression one would praise the dead rather than the living, yet they believed that God would preserve his people, and that the time was coming when it would be worth while for an Israelite to live. Some must hazard their own lives to preserve their children, and they were resolved to do it; they knew the king's commandment was evil in itself, contrary to the laws of God and nature, and therefore of no authority nor obligation. Faith is a great preservative against the sinful slavish fear of men, as it sets God before the soul, and shows the vanity of the creature and its subordination to the will and power of God. The apostle next proceeds to, 
+12. The faith of Moses himself (v. 24, 25, &c.), here observe, 
+	1. An instance of his faith in conquering the world. (1.) He refused to be called the son of Pharaoh's daughter, whose foundling he was, and her fondling too; she had adopted him for his son, and he refused it. Observe, [1.] How great a temptation Moses was under. Pharaoh's daughter is said to have been his only child, and was herself childless; and having found Moses, and saved him as she did, she resolved to take him and bring him up as her son; and so he stood fair to be in time king of Egypt, and he might thereby have been serviceable to Israel. He owed his life to this princess; and to refuse such kindness from her would look not only like ingratitude to her, but a neglect of Providence, that seemed to intend his advancement and his brethren's advantage. [2.] How glorious was the triumph of his faith in so great a trial. He refused to be called the son of Pharaoh's daughter lest he should undervalue the truer honour of being a son of Abraham, the father of the faithful; he refused to be called the son of Pharaoh's daughter lest it should look like renouncing his religion as well as his relation to Israel; and no doubt both these he must have done if he had accepted this honour; he therefore nobly refused it. (2.) He chose rather to suffer affliction with the people of God than to enjoy the pleasures of sin for a season, v. 25. He was willing to take his lot with the people of God here, though it was a suffering lot, that he might have his portion with them hereafter, rather than to enjoy all the sensual sinful pleasures of Pharaoh's court, which would be but for a season, and would then be punished with everlasting misery. Herein he acted rationally as well as religiously, and conquered the temptation to worldly pleasure as he had done before to worldly preferment. Here observe, [1.] The pleasures of sin are and will be but short; they must end in speedy repentance or in speedy ruin. [2.] The pleasures of this world, and especially those of a court, are too often the pleasures of sin; and they are always so when we cannot enjoy them without deserting God and his people. A true believer will despise them when they are offered upon such terms. [3.] Suffering is to be chosen rather than sin, there being more evil in the least sin than there can be in the greatest suffering. [4.] It greatly alleviates the evil of suffering when we suffer with the people of God, embarked in the same interest and animated by the same Spirit. (3.) He accounted the reproaches of Christ greater riches than the treasures of Egypt, v. 
+	2. See how Moses weighed matters: in one scale he put the worst of religion—the reproaches of Christ, in the other scale the best of the world—the treasures of Egypt; and in his judgment, directed by faith, the worst of religion weighed down the best of the world. The reproaches of the church of God are the reproaches of Christ, who is, and has ever been, the head of the church. Now here Moses conquered the riches of the world, as before he had conquered its honours and pleasures. God's people are, and always have been, a reproached people. Christ accounts himself reproached in their reproaches; and, while he thus interests himself in their reproaches, they become riches, and greater riches than the treasures of the richest empire in the world; for Christ will reward them with a crown of glory that fades not away. Faith discerns this, and determines and acts accordingly. 13. The circumstance of time is taken notice of, when Moses by his faith gained this victory
 over the world, in all its honours, pleasures, and treasures: When he had come to years (v.
 24); not only to years of discretion, but of experience, to the age of forty years—when he
 was great, or had come to maturity. Some would take this as detracting from his victory,
@@ -294,7 +217,7 @@ he did it. It was not the act of a child, that prefers counters to gold, but it 
 mature deliberation. It is an excellent thing for persons to be seriously religious when in the
 midst of worldly business and enjoyments, to despise the world when they are most capable
 of relishing and enjoying it.
-16. What it was that supported and strengthened the faith of Moses to such a degree as
+14. What it was that supported and strengthened the faith of Moses to such a degree as
 to enable him to gain such a victory over the world: He had respect unto the recompense of
 reward, that is, say some, the deliverance out of Egypt; but doubtless it means much
 more—the glorious reward of faith and fidelity in the other world. Observe here, (1.)
@@ -307,7 +230,7 @@ recompense of reward; they should acquaint themselves with it, approve of it, an
 the daily and delightful expectation of it. Thus it will prove a land-mark to direct their course,
 a load-stone to draw their hearts, a sword to conquer their enemies, a spur to quicken them
 to duty, and a cordial to refresh them under all the difficulties of doing and suffering work.
-17. We have another instance of the faith of Moses, namely, in forsaking Egypt: By faith
+15. We have another instance of the faith of Moses, namely, in forsaking Egypt: By faith
 he forsook Egypt, not fearing the wrath of the king, v. 27. Observe here, (1.) The product of
 his faith: He forsook Egypt, and all its power and pleasures, and undertook the conduct of
 Israel out of it. Twice Moses forsook Egypt: [1.] As a supposed criminal, when the king's
@@ -331,7 +254,7 @@ man hath seen, nor can see. [2.] By faith we may see this invisible God. We may 
 sured of his existence, of his providence, and of his gracious and powerful presence with
 us. [3.] Such a sight of God will enable believers to endure to the end whatever they may
 meet with in the way.
-18. We have yet another instance of the faith of Moses, in keeping the passover and
+16. We have yet another instance of the faith of Moses, in keeping the passover and
 sprinkling of blood, v. 28. The account of this we have in Exod. xii. 13-23. Though all Israel
 kept this passover, yet it was by Moses that God delivered the institution of it; and, though
 it was a great mystery, Moses by faith both delivered it to the people and kept it that night
@@ -363,14 +286,14 @@ grace.
 Chapter XI
 XIII. The next instance of faith is that of the Israelites passing through the Red Sea under
 the conduct of Moses their leader, v. 29. The story we have in Exodus, ch. xiv. Observe,
-19. The preservation and safe passage of the Israelites through the Red Sea, when there
+17. The preservation and safe passage of the Israelites through the Red Sea, when there
 was no other way to escape from Pharaoh and his host, who were closely pursuing them.
 Here we may observe, (1.) Israel's danger was very great; an enraged enemy with chariots
 and horsemen behind them; steep rocks and mountains on either hand, and the Red Sea
 before them. (2.) Their deliverance was very glorious. By faith they passed through the Red
 Sea as on dry land; the grace of faith will help us through all the dangers we meet with in
 our way to heaven.
-20. The destruction of the Egyptians. They, presumptuously attempting to follow Israel
+18. The destruction of the Egyptians. They, presumptuously attempting to follow Israel
 through the Red Sea, being thus blinded and hardened to their ruin, were all drowned. Their
 rashness was great, and their ruin was grievous. When God judges, he will overcome; and
 it is plain that the destruction of sinners is of themselves.
@@ -396,7 +319,7 @@ some great thing to do for them, he raises up great and strong faith in them.
 XV. The next instance is the faith of Rahab, v. 31. Among the noble army of believing
 worthies, bravely marshalled by the apostle, Rahab comes in the rear, to show that God is
 no respecter of persons. Here consider,
-21. Who this Rahab was. (1.) She was a Canaanite, a stranger to the commonwealth of Israel,
+19. Who this Rahab was. (1.) She was a Canaanite, a stranger to the commonwealth of Israel,
 and had but little help for faith, and yet she was a believer; the power of divine grace greatly
 appears when it works without the usual means of grace. (2.) She was a harlot, and lived in
 1671
@@ -405,7 +328,7 @@ a way of sin; she was not only a keeper of a public house, but a common woman of
 and yet she believed that the greatness of sin, if truly repented of, shall be no bar to the
 pardoning mercy of God. Christ has saved the chief of sinners. Where sin has abounded,
 grace has superabounded.
-22. What she did by her faith: She received the spies in peace, the men that Joshua had
+20. What she did by her faith: She received the spies in peace, the men that Joshua had
 sent to spy out Jericho, Josh. ii. 6, 7. She not only bade them welcome, but she concealed
 them from their enemies who sought to cut them off, and she made a noble confession of
 her faith, v. 9-11. She engaged them to covenant with her to show favour to her and hers,
@@ -450,7 +373,7 @@ their faith, though the objects thereof were not then so fully revealed. And, 4.
 lament it, that now, in gospel times, when the rule of faith is more clear and perfect, the
 number of believers should be so small and their faith so weak.
 I. In this summary account the apostle mentions,
-23. Gideon, whose story we have in Judges vi. 11, &c. He was an eminent instrument
+21. Gideon, whose story we have in Judges vi. 11, &c. He was an eminent instrument
 raised up of God to deliver his people from the oppression of the Midianites; he was a person
 of mean tribe and family, called from a mean employment (threshing wheat), and saluted
 by an angel of God in this surprising manner, The Lord is with thee, thou mighty man of
@@ -464,14 +387,14 @@ the same faith that gave Gideon so much courage and honour enabled him to act wi
 meekness and modesty towards his brethren afterwards. It is the excellency of the grace of
 faith that, while it helps men to do great things, it keeps them from having high and great
 thoughts of themselves.
-24. Barak, another instrument raised up to deliver Israel out of the hand of Jabin, king
+22. Barak, another instrument raised up to deliver Israel out of the hand of Jabin, king
 of Canaan, Judges 4, where we read, (1.) Though he was a soldier, yet he received his com-
 mission and instructions from Deborah, a prophetess of the Lord; and he insisted upon
 having this divine oracle with him in his expedition. (2.) He obtained a great victory by his
 faith over all the host of Sisera. (3.) His faith taught him to return all the praise and glory
 to God: this is the nature of faith; it has recourse unto God in all dangers and difficulties,
 and then makes grateful returns to God for all mercies and deliverances.
-25. Samson, another instrument that God raised up to deliver Israel from the Philistines:
+23. Samson, another instrument that God raised up to deliver Israel from the Philistines:
 his story we have in Judges xiii., xiv., xv., and xvi., and from it we learn that the grace of
 faith is the strength of the soul for great service. If Samson had not had a strong faith as well
 as a strong arm, he had never performed such exploits. Observe, (1.) By faith the servants
@@ -481,7 +404,7 @@ dying, gives him victory over death and all his deadly enemies; his greatest con
 by dying.
 1673
 Chapter XI
-26. Jephthah, whose story we have, Judg. xi., before that of Samson. He was raised up to
+24. Jephthah, whose story we have, Judg. xi., before that of Samson. He was raised up to
 deliver Israel from the Ammonites. As various and new enemies rise up against the people
 of God, various and new deliverers are raised up for them. In the story of Jephthah observe,
 (1.) The grace of God often finds out, and fastens upon, the most undeserving and ill-de-
@@ -492,7 +415,7 @@ of faith will make men bold and venturous in a good cause. (4.) Faith will not o
 upon making their vows to God, but paying their vows after the mercy received; yea, though
 they have vowed to their own great grief, hurt, and loss, as in the case of Jephthah and his
 daughter.
-27. David, that great man after God's own heart. Few ever met with greater trials, and
+25. David, that great man after God's own heart. Few ever met with greater trials, and
 few ever discovered a more lively faith. His first appearance on the stage of the world was
 a great evidence of his faith. Having, when young, slain the lion and the bear, his faith in
 God encouraged him to encounter the great Goliath, and helped him to triumph over him.
@@ -503,12 +426,12 @@ and honour (though not without some foul stains of sin), he died in faith, relyi
 everlasting covenant that God had made with him and his, ordered in all things and sure;
 and he has left behind him such excellent memoirs of the trials and acts of faith in the book
 of Psalms as will ever be of great esteem and use, among the people of God.
-28. Samuel, raised up to be a most eminent prophet of the Lord to Israel, as well as a ruler
+26. Samuel, raised up to be a most eminent prophet of the Lord to Israel, as well as a ruler
 over them. God revealed himself to Samuel when he was but a child, and continued to do
 so till his death. In his story observe, (1.) Those are likely to grow up to some eminency in
 faith who begin betimes in the exercise of it. (2.) Those whose business it is to reveal the
 mind and will of God to others had need to be well established in the belief of it themselves.
-29. To Samuel he adds, and of the prophets, who were extraordinary ministers of the Old-
+27. To Samuel he adds, and of the prophets, who were extraordinary ministers of the Old-
 Testament church, employed of God sometimes to denounce judgment, sometimes to
 promise mercy, always to reprove sin; sometimes to foretell remarkable events, known only
 to God; and chiefly to give notice of the Messiah, his coming, person, and offices; for in him
@@ -520,24 +443,24 @@ persons named; but he mentions other things that are not so easy to be accommoda
 any here named, but must be left to general conjecture or accommodation.
 1674
 Chapter XI
-30. By faith they subdued kingdoms, v. 33. Thus did David, Joshua, and many of the judges.
+28. By faith they subdued kingdoms, v. 33. Thus did David, Joshua, and many of the judges.
 Learn hence, (1.) The interests and powers of kings and kingdoms are often set up in oppos-
 ition to God and his people. (2.) God can easily subdue all those kings and kingdoms that
 set themselves to oppose him. (3.) Faith is a suitable and excellent qualification of those who
 fight in the ways of the Lord; it makes them just, bold, and wise.
-31. They wrought righteousness, both in their public and personal capacities; they turned
+29. They wrought righteousness, both in their public and personal capacities; they turned
 many from idolatry to the ways of righteousness; they believed God, and it was imputed to
 them for righteousness; they walked and acted righteously towards God and man. It is a
 greater honour and happiness to work righteousness than to work miracles; faith is an active
 principle of universal righteousness.
-32. They obtained promises, both general and special. It is faith that gives us an interest
+30. They obtained promises, both general and special. It is faith that gives us an interest
 in the promises; it is by faith that we have the comfort of the promises; and it is by faith that
 we are prepared to wait for the promises, and in due time to receive them.
-33. They stopped the mouths of lions; so did Samson, Judg. xiv. 5, 6, and David, 1 Sam.
+31. They stopped the mouths of lions; so did Samson, Judg. xiv. 5, 6, and David, 1 Sam.
 xvii. 34, 35, and Daniel, 6:22. Here learn, (1.) The power of God is above the power of the
 creature. (2.) Faith engages the power of God for his people, whenever it shall be for his
 glory, to overcome brute beasts and brutish men.
-34. They quenched the violence of the fire, v. 34. So Moses, by the prayer of faith, quenched
+32. They quenched the violence of the fire, v. 34. So Moses, by the prayer of faith, quenched
 the fire of God's wrath that was kindled against the people of Israel, Num. xi. 1, 2. So did
 the three children, or rather mighty champions, Dan. iii. 17-27. Their faith in God, refusing
 to worship the golden image, exposed them to the fiery furnace which Nebuchadnezzar had
@@ -545,13 +468,13 @@ prepared for them, and their faith engaged for them that power and presence of G
 furnace which quenched the violence of the fire, so that not so much as the smell thereof
 passed on them. Never was the grace of faith more severely tried, never more nobly exerted,
 nor ever more gloriously rewarded, than theirs was.
-35. They escaped the edge of the sword. Thus David escaped the sword of Goliath and of
+33. They escaped the edge of the sword. Thus David escaped the sword of Goliath and of
 Saul; and Mordecai and the Jews escaped the sword of Haman. The swords of men are held
 in the hand of God, and he can blunt the edge of the sword, and turn it away from his people
 against their enemies when he pleases. Faith takes hold of that hand of God which has hold
 of the swords of men; and God has often suffered himself to be prevailed upon by the faith
 of his people.
-36. Out of weakness they were made strong. From national weakness, into which the Jews
+34. Out of weakness they were made strong. From national weakness, into which the Jews
 often fell by their unbelief; upon the revival of their faith, all their interest and affairs revived
 and flourished. From bodily weakness; thus Hezekiah, believing the word of God, recovered
 out of a mortal distemper, and he ascribed his recovery to the promise and power of God
@@ -560,14 +483,14 @@ these things men live, and in these is the life of my spirit. And it is the same
 from spiritual weakness helps men to recover and renew their strength.
 1675
 Chapter XI
-37. They grew valiant in fight. So did Joshua, the judges, and David. True faith gives truest
+35. They grew valiant in fight. So did Joshua, the judges, and David. True faith gives truest
 courage and patience, as it discerns the strength of God, and thereby the weakness of all his
 enemies. And they were not only valiant, but successful. God, as a reward and encouragement
 of their faith, put to flight the armies of the aliens, of those who were aliens to their common-
 wealth, and enemies to their religion; God made them flee and fall before his faithful servants.
 Believing and praying commanders, at the head of believing and praying armies, have been
 so owned and honoured of God that nothing could stand before them.
-38. Women received their dead raised to life again, v. 35. So did the widow of Zarepath
+36. Women received their dead raised to life again, v. 35. So did the widow of Zarepath
 (1 Kings xvii. 23), and the Shunamite, 2 Kings iv. 36. (1.) In Christ there is neither male nor
 female; many of the weaker sex have been strong in faith. (2.) Though the covenant of grace
 takes in the children of believers, yet it leaves them subject to natural death. (3.) Poor
@@ -618,7 +541,7 @@ of all good men, and of the truth itself, and have the honour to be enrolled in 
 calendar of the Old-Testament worthies, God's witnesses; yea, they had a witness for them
 in the consciences of their enemies, who, while they thus abused them, were condemned
 by their own consciences, as persecuting those who were more righteous than themselves.
-39. They obtained an interest in the promises, though not the full possession of them. They
+37. They obtained an interest in the promises, though not the full possession of them. They
 had a title to the promises, though they received not the great things promised. This is not
 meant of the felicity of the heavenly state, for this they did receive, when they died, in the
 measure of a part, in one constituent part of their persons, and the much better part; but it
