@@ -1,7 +1,4 @@
 
-## Chapter XI
-
-### The Triumphs of Faith
 
 1. Now faith is the assurance of things hoped for, the conviction of things not seen.
 2. For by it the men of old gained approval.
@@ -43,5 +40,21 @@
 38. (men of whom the world was not worthy ), wandering in deserts and mountains and caves and holes in the ground.
 39. And all these, having gained approval through their faith, did not receive what was promised,
 40. because God had provided something better for us, so that apart from us they would not be made perfect.
+
+
+
+What then is faith?
+- "the assurance of things hoped for, the conviction of things not seen" ([[Bible/Hebrews/Chapter XI#Chapter XI|Hebrews 11:1]]) 
+	- assurance: surety? confidence? certainty? more like a parent telling a child "it'll be all right" even if/when the child doesn't understand?" 
+	- things hoped for: is this exclusively "well done my good and faithful servant", salvation, heaven, saved from hell? is it more?
+	- is "the conviction of things not seen" additive or clarifying? I suspect it is more clarifying than additive. 
+- "for by it the men of old gained approval"
+	- here we see that the under the Old Covenant, God did not save His people in some other way than faith but even then by faith, then as now. 
+- faith is the means by which "we understand that the worlds were prepared by the word of God, so that what is seen was not made out of things which are visible."
+	- is has been said that when the Bible teaches that God created the world by His Word that Jesus is already in view, that Jesus being part of the triune God was not created but is co-eternal with the Father and thus was present at the Creation and further if I am understanding Hebrews 11:3 properly that Jesus was also the means by which the worlds were prepared and not merely a trinitarian spectator.
+	- Would Christian scientists say that atoms, dark matter, whatever else were the "building blocks of creation" are in view of "things which are visible" or would they say that since it's small, microscopic, etc. that they are not visible
+
+
+Kierkegaard's Fear and Trembling, regarding Abraham's faith. 
 
 

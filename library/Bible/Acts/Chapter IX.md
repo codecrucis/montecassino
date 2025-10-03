@@ -1,5 +1,4 @@
 
-## Chapter IX
 
 The Conversion of Saul
 1. Now Saul, still breathing threats and murder against the disciples of the Lord, went to the high priest, 

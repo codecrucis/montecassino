@@ -1,25 +1,14 @@
 
 
 
-32 And it came to pass, as Peter passed throughout all quarters, he came down also to
-the saints which dwelt at Lydda. 33 And there he found a certain man named Æneas, which
-had kept his bed eight years, and was sick of the palsy. 34 And Peter said unto him, Æneas,
-Jesus Christ maketh thee whole: arise, and make thy bed. And he arose immediately. 35
-And all that dwelt at Lydda and Saron saw him, and turned to the Lord.
-Here we have, I. The visit Peter made to the churches that were newly planted by the
-dispersed preachers, v. 32. 1. He passed through all quarters. As an apostle, he was not to be
-the resident pastor of any one church, but the itinerant visitor of many churches, to confirm
-the doctrine of inferior preachers, to confer the Holy Ghost on those that believed, and to
-ordain ministers. He passed dia panton—among them all, who pertained to the churches
-of Judea, Galilee, and Samaria, mentioned in the foregoing chapter. He was, like his Master,
-always upon the remove, and went about doing good; but still his head-quarters were at
-Jerusalem, for there we shall find him imprisoned, ch. xii. 2. He came to the saints at Lydda.
-This seems to be the same with Lod, a city in the tribe of Benjamin, mentioned 1 Chron.
-viii. 12; Ezra ii. 33. The Christians are called saints, not only some particular eminent ones,
-as saint Peter and saint Paul, but every sincere professor of the faith of Christ. These are the
-saints on the earth, Ps. xvi. 3.
-II. The cure Peter wrought on Eneas, a man that had been bedridden eight years, v. 33.
-1. His case was very deplorable: He was sick of the palsy, a dumb palsy, perhaps a dead palsy.
+32. And it came to pass, as Peter passed throughout all quarters, he came down also to the saints which dwelt at Lydda. 
+33. And there he found a certain man named Æneas, which had kept his bed eight years, and was sick of the palsy. 
+34. And Peter said unto him, Æneas, Jesus Christ maketh thee whole: arise, and make thy bed. And he arose immediately. 
+35. And all that dwelt at Lydda and Saron saw him, and turned to the Lord. Here we have, 
+
+## 
+1. The visit Peter made to the churches that were newly planted by the dispersed preachers, v. 32. 1. He passed through all quarters. As an apostle, he was not to be the resident pastor of any one church, but the itinerant visitor of many churches, to confirm the doctrine of inferior preachers, to confer the Holy Ghost on those that believed, and to ordain ministers. He passed dia panton—among them all, who pertained to the churches of Judea, Galilee, and Samaria, mentioned in the foregoing chapter. He was, like his Master, always upon the remove, and went about doing good; but still his head-quarters were at Jerusalem, for there we shall find him imprisoned, ch. xii. 2. He came to the saints at Lydda. This seems to be the same with Lod, a city in the tribe of Benjamin, mentioned 1 Chron. viii. 12; Ezra ii. 33. The Christians are called saints, not only some particular eminent ones, as saint Peter and saint Paul, but every sincere professor of the faith of Christ. These are the saints on the earth, Ps. xvi. 3. The cure Peter wrought on Eneas, a man that had been bedridden eight years, v. 33.
+2. His case was very deplorable: He was sick of the palsy, a dumb palsy, perhaps a dead palsy.
 The disease was extreme, for he kept his bed; it was inveterate, for he kept his bed eight years;
 and we may suppose that both he himself and all about him despaired of relief for him, and
 concluded upon no other than that he must still keep his bed till he removed to his grave.
@@ -136,7 +125,7 @@ he was sent for. Let not faithful ministers grudge to be at every body's beck, a
 have ability, when the great apostle made himself the servant of all, 1 Cor. ix. 19. He found
 the corpse laid in the upper chamber, and attended by widows, probably such as were in
 the communion of the church, poor widows; there they were,
-2. Commending the deceased—a good work, when there was that in them which was
+3. Commending the deceased—a good work, when there was that in them which was
 truly commendable, and worthy of imitation, and when it is done modestly and soberly,
 and without flattery of the survivors or any sinister intention, but purely for the glory of
 God and the exciting of others to that which is virtuous and praiseworthy. The commendation
@@ -173,7 +162,7 @@ woman, that she lays her hands to the spindle, or at least to the needle, and th
 out her hand to the poor, and reaches forth her hands to the needy, of what she has worked;
 and, when God and the poor have thus had their due, she makes herself coverings of tapestry
 and her own clothing is silk and purple, Prov. xxxi. 19-22.
-3. They were here lamenting the loss of her: The widows stood by Peter, weeping. When
+4. They were here lamenting the loss of her: The widows stood by Peter, weeping. When
 the merciful are taken away, it should be laid to heart, especially by those to whom they
 have been in a particular manner merciful. They need not weep for her; she is taken from
 the evil to come, she rests from her labours and her works follow her, besides those she leaves
@@ -204,7 +193,7 @@ lamentations. 2. By prayer. In his healing Eneas there was an implied prayer, bu
 greater work he addressed himself to God by solemn prayer, as Christ when he raised Lazarus;
 but Christ's prayer was with the authority of a Son, who quickens whom he will; Peter's with
 the submission of a servant, who is under direction, and therefore he knelt down and prayed.
-4. By the word, a quickening word, a word which is spirit and life: He turned to the body,
+5. By the word, a quickening word, a word which is spirit and life: He turned to the body,
 which intimates that when he prayed he turned from it; lest the sight of it should discourage
 his faith, he looked another way, to teach us, like Abraham, against hope, to believe in hope,
 and overlook the difficulties that lie in the way, not considering the body as now dead, lest
@@ -238,3 +227,6 @@ mind high things, but to condescend to those of low estate, Rom. xii. 16. And, t
 might seem to be buried in obscurity here in the house of a poor tanner by the sea-side, yet
 hence God fetched him to a noble piece of service, which is recorded in the next chapter;
 for those that humble themselves shall be exalted.
+
+
+

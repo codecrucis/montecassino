@@ -4,24 +4,51 @@
     "type": "split",
     "children": [
       {
-        "id": "d71bcaf65134f2f6",
-        "type": "tabs",
+        "id": "c84e92e79d94eccc",
+        "type": "split",
         "children": [
           {
-            "id": "ed92a25fffd477c0",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Matthew Henry/Commentary on Hebrews.md",
-                "mode": "source",
-                "source": true
-              },
-              "icon": "lucide-file",
-              "title": "Commentary on Hebrews"
-            }
+            "id": "d71bcaf65134f2f6",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "36e66fcab4279c7b",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Bible/Ezekiel/Chapter XXXIV.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "Chapter XXXIV"
+                }
+              }
+            ]
+          },
+          {
+            "id": "4d616ea46cddd5d5",
+            "type": "tabs",
+            "children": [
+              {
+                "id": "5e0e5ba139c656be",
+                "type": "leaf",
+                "state": {
+                  "type": "markdown",
+                  "state": {
+                    "file": "Payne McDowell/Commentary on Ezekiel/Chapter XXXIV.md",
+                    "mode": "source",
+                    "source": false
+                  },
+                  "icon": "lucide-file",
+                  "title": "Chapter XXXIV"
+                }
+              }
+            ]
           }
-        ]
+        ],
+        "direction": "horizontal"
       }
     ],
     "direction": "vertical"
@@ -142,13 +169,13 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Matthew Henry/Commentary on Hebrews.md",
+                "file": "Bible/Ezekiel/Chapter XXXIV.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Commentary on Hebrews"
+              "title": "Outline of Chapter XXXIV"
             }
           }
         ],
@@ -160,6 +187,7 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
@@ -168,19 +196,35 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "ed92a25fffd477c0",
+  "active": "36e66fcab4279c7b",
   "lastOpenFiles": [
-    "Payne McDowell/Commentary on Hebrews.md",
-    "Matthew Henry/Commentary on Hebrews.md",
-    "Bible/Hebrews.md",
-    "Matthew Henry/Commentary on Acts.md",
-    "Bible/Acts.md",
+    "Payne McDowell/Commentary on Ezekiel/Chapter XXXIV.md",
+    "Bible/Ezekiel/Chapter XXXIV.md",
+    "Payne McDowell/Commentary on Ezekiel",
+    "Bible/Ezekiel/Chapter XXXVI.md",
+    "Bible/Ezekiel/Chapter XXXV.md",
+    "Payne McDowell/Commentary on Exodus/Chapter XIV.md",
+    "Bible/Ezekiel",
+    "Payne McDowell/Commentary on Hebrews/Chapter XI.md",
+    "Bible/Exodus/Chapter XIV.md",
+    "Bible/Exodus",
+    "Payne McDowell/Commentary on Exodus",
+    "Bible/Hebrews/Chapter XI.md",
+    "Payne McDowell/Table of Contents.base",
+    "Payne McDowell/Commentary on Hebrews/Untitled.base",
+    "Payne McDowell/Commentary on Romans/Chapter XIII.md",
+    "Payne McDowell/Commentary on Hebrews",
+    "Bible/Romans/Chapter XIII.md",
+    "Bible/Romans",
+    "Payne McDowell/Commentary on Acts/Chapter IX.md",
+    "Matthew Henry/Commentary on Hebrews/Chapter XI.md",
+    "Commentary on Hebrews/Chapter XI.md",
+    "Payne McDowell/Commentary on Romans",
+    "Commentary on Hebrews",
     "Bible/Mark.md",
-    "Payne McDowell/Commentary on Acts.md",
-    "Bible/NASB 1995",
-    "Payne McDowell",
-    "Bible",
-    "Matthew Henry",
-    "README.md"
+    "Bible/Acts/Chapter IX.md",
+    "README.md",
+    "Matthew Henry/Commentary on Acts/Chapter IX.md",
+    "Matthew Henry/Commentary on Hebrews.md"
   ]
 }
